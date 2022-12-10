@@ -10,7 +10,7 @@ kLw3b
 
 ## REJOIGNIEZ LE SERVEUR DISCORD - JOIN SERVER DISCORD!!!!!!!!!!!!!!!!!!!!!!!!
 
-https://discord.gg/MS6TMgRfqB
+https://discord.gg/6J5W9gwcuG
 <br><br>
 
 ## Installation
@@ -42,7 +42,7 @@ https://discord.gg/MS6TMgRfqB
 
 ## 📞 Contact me
 
-[Discord](https://www.discord.gg/MS6TMgRfqB)
+[Discord](https://discord.gg/6J5W9gwcuG)
 [Twitter](https://twitter.com/kLw3b)
 
 <br />
